@@ -10,3 +10,7 @@ Deir Yassin Massacre
 
 https://x.com/milruby27/status/1725209154296615226?s=46
 
+UN Palestinian Representative Speech
+
+https://x.com/ousmannoor/status/1725851968193642611?s=46
+
